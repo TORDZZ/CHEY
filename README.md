@@ -31,7 +31,7 @@
 
 ✿ . *I usually stay in the Eddsworld, Cookie Run: Kingdom, and Honkai: Star rail areas* ***!!***
 
-__*** ──★ ˙🍓 ̟  NOTE !! ***___
+**──★ ˙🍓 ̟  NOTE !!**
 
 *I am a user who needs tonetags (/j, /srs, etc.) as it helps me understand tone through text! I also tend to block/hide people a lot. Sometimes it's for serious reasons, and sometimes it's because I can't see well and somebody's in the way.*
 
